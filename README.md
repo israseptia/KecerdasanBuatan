@@ -1,1 +1,3 @@
 # KecerdasanBuatan
+Nama: ISRA SEPTIA CAHYANI
+NIM : F55121060
